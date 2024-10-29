@@ -1,0 +1,1 @@
+# Word-Counter-Privacy-Policy
